@@ -1,3 +1,3 @@
-# Art made of unusual stuff
+# 化腐朽为艺术
 
-Immerse yourself in the weirdly wonderful world of art made from unconventional materials.
+让我们沉浸在一个由平凡材质构建的怪异却神奇的艺术世界吧！
